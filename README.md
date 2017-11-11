@@ -1,6 +1,6 @@
 Vinyl
 =====
 
-My vinyle record list.
-They are for sale.
-And a memory of what I once listened to.
+My vinyl record collection.
+The records were sold, or given away.
+Now I prefer streams
